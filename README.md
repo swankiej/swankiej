@@ -1,7 +1,3 @@
-# Jonathan D. Swankie
-
-## Finance Enthusiast | Tech Explorer | Lifelong Learner
-
 Passionate about the intersection of finance, technology, and data. Always curious and eager to learn, I enjoy tackling complex problems and finding innovative solutions.
 
 ### 🌟 Interests
